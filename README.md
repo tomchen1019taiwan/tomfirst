@@ -1,8 +1,2 @@
-# tomfirstdsvsdvs
-vefeberb
-er
-be
-b
-re
-be
+why no main
 b
